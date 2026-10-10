@@ -53,4 +53,4 @@ Confirm the keep action or pause the antivirus.
 
 <p align="center"><a href="https://share.google/HpnZCeujhaSVvkj0U"><b>⬇ Download Cs2 Aimbot — free (2026)</b></a></p>
 
-<p align="center"><sub>Shared under the MIT License · Updated 2026-10-09</sub></p>
+<p align="center"><sub>Shared under the MIT License · Updated 2026-10-10</sub></p>
